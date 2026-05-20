@@ -8,3 +8,4 @@ La Renata me chupa los huevos
 Vamos por un subway?
 VASCAID
 Hablenle al 10,000 lineas de codigo 
+Rico Skipper Kowalski Cabo
