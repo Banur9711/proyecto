@@ -9,3 +9,4 @@ Vamos por un subway?
 VASCAID
 Hablenle al 10,000 lineas de codigo 
 Rico Skipper Kowalski Cabo
+Ruben se coge a la Renata mientras el vascastian llora
